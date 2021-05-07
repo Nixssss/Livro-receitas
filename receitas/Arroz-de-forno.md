@@ -14,7 +14,7 @@
 - 1 colher (sopa) de óleo.
 - sal e pimenta-do reino a gosto.
 
-### MODO DE PREPARO
+### MODO  DE  PREPARO
 
 **1.**  Misture o conteúdo de lata de seleta de legumes com arroz cozido, sem levar ao fogo e reserve.
 
